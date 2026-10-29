@@ -1,0 +1,1 @@
+2026-10-29 | Test run: joined BILF Podcast Runback.TV; cut 3 Kiran Krishnan Shorts drafts (clip1–3 from youtube.com/watch?v=PDOilfSQV04); waiting on Levi approval before Zernio post + campaign submit. Discord join still needed before submit. YT account age rule (30+ days) flagged.
